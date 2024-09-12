@@ -1,0 +1,1 @@
+# badge-apply-blue-verified
